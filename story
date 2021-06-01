@@ -1,1 +1,1 @@
-Once upon a time, there lived a monkey. In a nearby lake lived a crocodile and his wife. 
+Once upon a time, there lived a monkey. In a nearby lake lived a crocodile and his wife.One day the crocodile visited the monkey and the monkey offered him berries. As time passed they became good friends. 
